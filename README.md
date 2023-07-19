@@ -6,4 +6,4 @@
 4. Side - Radish
 5. Side - Eggs
 6. Carrots stir-fry
-  
+    ![carrots_image](https://mykoreankitchen.com/wp-content/uploads/2023/05/9.-Mini-Kimbap-Carrot.jpg)
