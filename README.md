@@ -7,3 +7,4 @@
 5. Side - Eggs
 6. Carrots stir-fry - image source: mykoreankitchen.com
     ![carrots_image](https://mykoreankitchen.com/wp-content/uploads/2023/05/9.-Mini-Kimbap-Carrot.jpg)
+7. Side - dumpling
