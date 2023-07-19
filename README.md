@@ -5,5 +5,5 @@
 3. Spinach, 2 minced garlic cloves, ½ teaspoon kosher salt, and 2 teaspoons toasted sesame oil in a bowl. Mix well by hand.
 4. Side - Radish
 5. Side - Eggs
-6. Carrots stir-fry
+6. Carrots stir-fry - image source: mykoreankitchen.com
     ![carrots_image](https://mykoreankitchen.com/wp-content/uploads/2023/05/9.-Mini-Kimbap-Carrot.jpg)
