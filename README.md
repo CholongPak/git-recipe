@@ -5,3 +5,5 @@
 3. Spinach, 2 minced garlic cloves, ½ teaspoon kosher salt, and 2 teaspoons toasted sesame oil in a bowl. Mix well by hand.
 4. Side - Radish
 5. Side - Eggs
+
+7. Side - dumpling
